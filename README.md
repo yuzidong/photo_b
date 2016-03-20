@@ -1,3 +1,4 @@
+[【上一组:喜服外景镇江阁】](http://yuzidong.github.io/photo_a) [【返回列表】](http://yuzidong.github.io/photolist)  [【下一组:室外婚纱】](http://yuzidong.github.io/photo_d)  
 ![b1](https://github.com/yuzidong/wedding/blob/master/images/b1.jpg?raw=true)  
 ![b2](https://github.com/yuzidong/wedding/blob/master/images/b2.jpg?raw=true)  
 ![b3](https://github.com/yuzidong/wedding/blob/master/images/b3.jpg?raw=true)  
@@ -19,4 +20,5 @@
 ![b19](https://github.com/yuzidong/wedding/blob/master/images/b19.jpg?raw=true)  
 ![b20](https://github.com/yuzidong/wedding/blob/master/images/b20.jpg?raw=true)  
 ![b21](https://github.com/yuzidong/wedding/blob/master/images/b21.jpg?raw=true)  
-![b22](https://github.com/yuzidong/wedding/blob/master/images/b22.jpg?raw=true)  
+![b22](https://github.com/yuzidong/wedding/blob/master/images/b22.jpg?raw=true)   
+[【上一组:喜服外景镇江阁】](http://yuzidong.github.io/photo_a) [【返回列表】](http://yuzidong.github.io/photolist)  [【下一组:室外婚纱】](http://yuzidong.github.io/photo_d)
